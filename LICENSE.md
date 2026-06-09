@@ -1,4 +1,4 @@
-# 
+# Turbo auto-leverage trading bot extensões para Mac OS | Oficial auto-leverage trading bot extensões para PC Windows. Com API de exchange centralizada e otimização de gas — otimizado para máximo desempenho em cada plataforma.
 
 
 
